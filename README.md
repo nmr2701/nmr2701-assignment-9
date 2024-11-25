@@ -1,3 +1,5 @@
+https://youtu.be/BI4_p_L7cfI
+
 # Assignment 9: Neural Networks
 
 ---
